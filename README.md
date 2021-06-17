@@ -16,4 +16,3 @@ Thank you!
 Regards,
 
 Alex Le
-669-225-6248.
